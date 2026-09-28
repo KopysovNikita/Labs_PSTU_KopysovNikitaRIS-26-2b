@@ -7,4 +7,4 @@
 |:---|:---:|:---:|:---:|
 |0|HelloWorld|24.09.26|Done|
 
-![сутулая собака](https://cs15.pikabu.ru/post_img/2024/08/10/11/og_og_17233165322642203.jpg)
+![студент](https://kupidonia.ru/content/quiz/photo/webp/9/d/4355_2.webp)
